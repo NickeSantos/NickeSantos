@@ -1,4 +1,4 @@
-## Prazer, me chamo Nicole!
+## 💜Prazer, me chamo Nicole!
 
 💼 Estagiária de RH Digital em uma multinacional;
 
